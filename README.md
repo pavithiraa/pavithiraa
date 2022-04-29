@@ -5,13 +5,13 @@
 
 - 👯 I’m looking to collaborate on **open source developers**
 
-- 👨‍💻 All of my projects are available at [https://mystifying-villani-ddf1ab.netlify.app/](https://trusting-hawking-83fc87.netlify.app/)
+- 👨‍💻 All of my projects are available at [https://pavi-portfolio.netlify.app/](https://pavi-portfolio.netlify.app/)
 
 - 💬 Ask me about **Javascript, ReactJs and Nodejs.**
 
 - 📫 How to reach me **hrpavithraa2000@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1mZkSxPChlEiYONQ-dJ6gf3sCz8u8Udbe/view?usp=sharing](https://drive.google.com/file/d/1mZkSxPChlEiYONQ-dJ6gf3sCz8u8Udbe/view?usp=sharing)
+- 📄 Know about my experiences [https://drive.google.com/file/d/1lOildgEEl5LGhDB2Z4l_mDXFITThI_oG/view?usp=sharing](https://drive.google.com/file/d/1lOildgEEl5LGhDB2Z4l_mDXFITThI_oG/view?usp=sharing)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
