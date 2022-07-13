@@ -11,7 +11,7 @@
 
 - 📫 How to reach me **hrpavithraa2000@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1lOildgEEl5LGhDB2Z4l_mDXFITThI_oG/view?usp=sharing](https://drive.google.com/file/d/1lOildgEEl5LGhDB2Z4l_mDXFITThI_oG/view?usp=sharing)
+- 📄 Know about my experiences [https://drive.google.com/file/d/1lwGSdBGnf91pfFIupLC7eSIsY-OhN402/view?usp=sharing](https://drive.google.com/file/d/1lwGSdBGnf91pfFIupLC7eSIsY-OhN402/view?usp=sharing)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
